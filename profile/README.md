@@ -22,7 +22,7 @@ Our flagship projects include innovative AI tools and systems that are designed 
 
 ## Get in Touch
 
-Visit our website at [hexelai.com](https://hexelai.com) to learn more about our services, or feel free to reach out for collaboration opportunities.
+Join us at [Teams]([https://hexelai.com](https://teams.live.com/l/community/FEA4bFZ04hnFo-chQE)) to learn more about our services, or feel free to reach out for collaboration opportunities.
 
 ---
 
