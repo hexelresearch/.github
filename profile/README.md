@@ -22,7 +22,7 @@ We are not just offering AI services; we are creating a platform for innovation.
 
 **Discover. Innovate. Transform.** Welcome to **Hexel Research**.
 
-[Join us on Teams](https://teams.live.com/l/community/FEAwgt7rUHfGitarAE) | [Contact Us](mailto:hexelai@outlook.com)
+[Join us on Telegram](https://t.me/hexelresearch) | [Contact Us](mailto:hexelai@outlook.com)
 
 ---
 
